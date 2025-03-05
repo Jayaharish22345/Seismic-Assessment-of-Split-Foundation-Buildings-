@@ -1,0 +1,1 @@
+# Seismic-Assessment-of-Split-Foundation-Buildings-
